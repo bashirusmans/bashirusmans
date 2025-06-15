@@ -2,8 +2,6 @@
 
 🚀 **Backend Engineer | Lead Developer | Machine Learning Enthusiast**
 
-[LinkedIn](https://www.linkedin.com/) | [Email](mailto:)  
-
 ---
 
 ## 🧑‍🏫 About Me
